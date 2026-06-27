@@ -2,8 +2,11 @@
 
 
 ## …⁠ᘛ⁠⁐̤⁠ᕐ⁠ᐷ Welcome to My profile, hope you enjoye your stay here ▸▸
+
 -------
+
  ︶︶ ︶︶ ︶︶ ︶︶
+ 
  ▸▸ the Stanley intro 〢: ～⁠>⁠`⁠)⁠～⁠～⁠～
 
  
