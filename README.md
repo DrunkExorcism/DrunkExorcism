@@ -3,10 +3,10 @@
 
 ## …⁠ᘛ⁠⁐̤⁠ᕐ⁠ᐷ Welcome to My profile, hope you enjoye your stay here ▸▸
 
--------
+------- "How are you feeling today?"
 
  ︶︶ ︶︶ ︶︶ ︶︶
  
- ▸▸ the Stanley intro 〢: ～⁠>⁠`⁠)⁠～⁠～⁠～
+ ▸▸ take a step back and relax〢: ～⁠>⁠`⁠)⁠～⁠～⁠～
 
  
