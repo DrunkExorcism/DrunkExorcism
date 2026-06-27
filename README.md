@@ -20,4 +20,4 @@
 
 Taken or Single?: single, however i have no interest in starting a relationship.
 
-<img width="1080" height="360" Url:https://cdn.phototourl.com/free/2026-06-27-19424404-ccd7-414f-85c9-706e011924f5.png" />
+<img width="1080" height="360" alt="A person in a red cape is sitting in the water with a map." />
