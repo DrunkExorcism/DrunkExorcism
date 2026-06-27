@@ -7,6 +7,17 @@
 
  ︶︶ ︶︶ ︶︶ ︶︶
  
- ▸▸ take a step back and relax〢: ～⁠>⁠`⁠)⁠～⁠～⁠～
+ ▸▸ take a step back and relax〢
+ ... ... ... ✧
+ ╭ ─U─U────────── ✦ ⁺.  
+╰─ ꩜ about me.ᐟ  
+۝ ┇name(s): Stanley, stan, Jasper, drunk, Exo.
 
- 
+◡┇pronouns: he/him/ ✓ They/then  
+- I'm a cis female this takes more to Masculine terms -
+
+۝  ┇age: private !!  
+
+Taken or Single?: single, however i have no interest in starting a relationship.
+
+<img width="1080" height="360" Url:https://cdn.phototourl.com/free/2026-06-27-19424404-ccd7-414f-85c9-706e011924f5.png" />
