@@ -13,8 +13,8 @@
 ╰─ ꩜ about me.ᐟ  
 ۝ ┇name(s): Stanley, stan, Jasper, drunk, Exo.
 
-◡┇pronouns: he/him/ ✓ They/then  
-- I'm a cis female this takes more to Masculine terms -
+◡┇pronouns: he/him/ ✓ They/them
+- I'm a cis female this takes more comfort to Masculine terms -
 
 ۝  ┇age: private !!  
 
@@ -50,8 +50,18 @@ all art works was created solely by me.
 
 • I'm a very shy and quite person, and I rarely starts conversation first. however I'm very friendly and i love to talk with people given the chance (⁠っ⁠.⁠❛⁠ ⁠ᴗ⁠ ⁠❛⁠.⁠)⁠っ
 
-• undiagnosed and under Self therapy, i don't have ADHD, nor I'm autistic stop spreading misinformation! 
+• I don't use tone tags, unless you explicitly asked for them and genuinely need them!
 
-• Jax Stans please stay away from me. 
+• Jax Stans please stay away from me.
+
+-------
+update.
+
+I'm a straightforward person, especially with strangers, i don't like drama. People who vent to me. and anything this boardline crosses my comfort zone. 
+
+i have been diagnosed recently with OCD and mythomania (pathological liar disorder) however it's nothing severe. i get very uncomfortable when someone forces me out of my comfort zone aka: my routine.
+
+I have started my medication. and I'm getting better, However try to never force anything out of. especially if its a private info, i will never share my real name, age, country, residence etc. forcing this info out of me will only make me lie. to. you. or possibly even block you. 
+ 
 
 <img width="1080" height="360" alt="a wing" src="https://cdn.phototourl.com/free/2026-06-27-3c84735e-10ea-45bb-bbd0-d76a95390e47.jpg" />
