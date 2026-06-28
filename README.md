@@ -75,7 +75,7 @@ i have been diagnosed recently with OCD and mythomania (pathological liar disord
 
 I have started my medication. and I'm getting better, However try to never force anything out of. especially if its a private info, i will never share my real name, age, country, residence etc. forcing this info out of me will only make me lie. to. you. or possibly even block you. 
 
-_"𝕴𝖙'𝖘 𝖙𝖎𝖒𝖊 𝖙𝖔 𝖜𝖆𝖐𝖊 𝖚𝖕, 𝖒𝖞 𝖉𝖆𝖗𝖑𝖎𝖓𝖌𝖘."_
+_"𝕴𝖙'𝖘 𝖙𝖎𝖒𝖊 𝖙𝖔 𝖜𝖆𝖐𝖊 𝖚𝖕."_
  
 
 <img width="1080" height="360" alt="a wing" src="https://i.postimg.cc/qMHbmh1q/4721c7b21306a8c5e892bab511b220a9.jpg" alt="4542263248622993113684" />
