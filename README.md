@@ -32,23 +32,29 @@ _◡◡have you seen my oc/sona? now you have!◡◡_
 
 <img width="500" height="500" src="https://i.postimg.cc/bNg1y4pr/Untitled30-20260414145337.png" alt="A man in a chibi art style." />
 
-all art works was created solely by me.
-----
+
+---- Art works drawn by me ✦
 
 
 ╰─ ꩜ interests & more.ᐟ
 ✦ ┇likes:  Drawing, character building, playing video games, The Stanley parable, Alexander Hamilton. history. strolling past dawn. (⁠｡⁠•̀⁠ᴗ⁠-⁠)⁠✧
 
 ✦ ┇birthday: January 13th.
+
 ┇timezone: shift between UTC+2 and UTC+3
+
 ✦ ┇dm status: Open on Discord ^^
 (LonerDrunk.)
+
+✦ ▸▸ (C+H) always , i hate seeing my hans alone.〢:  ︶︶
 
 ..... ... ...
 
 My kin!
 
 <img width="500" height="500" src="https://i.postimg.cc/RFvyb3SC/683924192da85d6f614be24e4a7d6845.jpg" alt="1353566433637384448247" />
+
+_every step you take towards happiness is worth it ✦_
 
 ◇ ⋆ Extra!
 
@@ -66,6 +72,8 @@ I'm a straightforward person, especially with strangers, i don't like drama. Peo
 i have been diagnosed recently with OCD and mythomania (pathological liar disorder) however it's nothing severe. i get very uncomfortable when someone forces me out of my comfort zone aka: my routine.
 
 I have started my medication. and I'm getting better, However try to never force anything out of. especially if its a private info, i will never share my real name, age, country, residence etc. forcing this info out of me will only make me lie. to. you. or possibly even block you. 
+
+_"𝕴𝖙'𝖘 𝖙𝖎𝖒𝖊 𝖙𝖔 𝖜𝖆𝖐𝖊 𝖚𝖕, 𝖒𝖞 𝖉𝖆𝖗𝖑𝖎𝖓𝖌𝖘."_
  
 
-<img width="1080" height="360" alt="a wing" src="https://cdn.phototourl.com/free/2026-06-27-3c84735e-10ea-45bb-bbd0-d76a95390e47.jpg" />
+<img width="1080" height="360" alt="a wing" src="https://i.postimg.cc/qMHbmh1q/4721c7b21306a8c5e892bab511b220a9.jpg" alt="4542263248622993113684" />
