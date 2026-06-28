@@ -1,3 +1,5 @@
+**Notice: this readme will be used for trivial, gaming purposes only**
+
 aw<img width="1080" height="360" alt="596b2f17146169cdedb8a83237811ee9" src="https://github.com/user-attachments/assets/9d32885f-b608-40a2-b01f-a0de7c2b1b6c" />
 
 
@@ -56,8 +58,8 @@ My kin!
 
 <table>
   <tr>
-    <th>App Screen 1</th>
-    <th>App Screen 2</th>
+    <th>I'm him</th>
+    <th>he's me</th>
   </tr>
   <tr>
     <td><img src="https://i.postimg.cc/RFvyb3SC/683924192da85d6f614be24e4a7d6845.jpg" width="1000" alt="Login Screen"></td>
