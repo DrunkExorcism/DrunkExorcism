@@ -11,7 +11,7 @@
  ... ... ... ✧
  ╭ ─U─U────────── ✦ ⁺.  
 ╰─ ꩜ about me.ᐟ  
-۝ ┇name(s): Stanley, stan, Jasper, drunk, Exo.
+۝ ┇name(s): Stanley, stan, Jasper, drunk, Hans.
 
 ◡┇pronouns: he/him/ ✓ They/them
 - I'm a cis female this takes more comfort to Masculine terms -
