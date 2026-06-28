@@ -46,6 +46,10 @@ all art works was created solely by me.
 
 ..... ... ...
 
+My kin!
+
+<img width="500" height="500" src="https://i.postimg.cc/RFvyb3SC/683924192da85d6f614be24e4a7d6845.jpg" alt="1353566433637384448247" />
+
 ◇ ⋆ Extra!
 
 • I'm a very shy and quite person, and I rarely starts conversation first. however I'm very friendly and i love to talk with people given the chance (⁠っ⁠.⁠❛⁠ ⁠ᴗ⁠ ⁠❛⁠.⁠)⁠っ
