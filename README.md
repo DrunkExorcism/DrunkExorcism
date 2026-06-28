@@ -54,7 +54,19 @@ _◡◡have you seen my oc/sona? now you have!◡◡_
 
 My kin!
 
-<img width="500" height="500" src="https://i.postimg.cc/RFvyb3SC/683924192da85d6f614be24e4a7d6845.jpg" alt="1353566433637384448247" />
+<table>
+  <tr>
+    <th>App Screen 1</th>
+    <th>App Screen 2</th>
+  </tr>
+  <tr>
+    <td><img src="https://i.postimg.cc/RFvyb3SC/683924192da85d6f614be24e4a7d6845.jpg" width="1000" alt="Login Screen"></td>
+    <td><img src="https://i.postimg.cc/4NT5sCk3/6686f997b0b3dfbd35b178062119f80f.jpg" width="1000" alt="Dashboard"></td>
+  </tr>
+</table>
+
+|hans|Hans|hans|
+|-----|----|-----|
 
 _every step you take towards happiness is worth it ✦_
 
