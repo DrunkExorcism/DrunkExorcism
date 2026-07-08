@@ -74,7 +74,7 @@ _every step you take towards happiness is worth it ✦_
 
 ◇ ⋆ Extra!
 
-• I'm a very shy and quite person, and I rarely starts conversation first. however I'm very friendly and i love to talk with people given the chance (⁠っ⁠.⁠❛⁠ ⁠ᴗ⁠ ⁠❛⁠.⁠)⁠っ
+• I'm a very shy and quite person, and I rarely starts conversation first. however I'm very friendly and i love to talk with people given the chance
 
 • I don't use tone tags, unless you explicitly asked for them and genuinely need them!
 
