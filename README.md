@@ -13,14 +13,14 @@
  ... ... ... ✧
  ╭ ─U─U────────── ✦ ⁺.  
 ╰─ ꩜ about me.ᐟ  
-۝ ┇name(s): Stanley, stan, Jasper, drunk, Hans.
+۝ ┇name(s): you can call me Stanley, stan, or Hans 
 
 ◡┇pronouns: he/him/ ✓ They/them
-- I'm a cis female this takes more comfort to Masculine terms -
+- i take only to masculine terms please don't associate me with feminie terms -
 
-۝  ┇age: private !!  
+۝  ┇age: private.  
 
-Taken or Single?: single, however i have no interest in starting a relationship.
+Taken or Single?: single
 
 Listening to:
 
@@ -28,7 +28,7 @@ Listening to:
 
 
 
-_◡◡have you seen my oc/sona? now you have!◡◡_
+_◡◡have you seen my oc/sona? now you have◡◡_
 
 <img width="500" height="500" src="https://i.postimg.cc/PJGQDDRf/Untitled39-20260626202234.png" alt="A person a suit sitting in garage." />
 
@@ -37,20 +37,20 @@ _◡◡have you seen my oc/sona? now you have!◡◡_
 <img width="500" height="500" src="https://i.postimg.cc/bNg1y4pr/Untitled30-20260414145337.png" alt="A man in a chibi art style." />
 
 
----- Art works drawn by me ✦
+---- Art works by me ✦
 
 
 ╰─ ꩜ interests & more.ᐟ
-✦ ┇likes:  Drawing, character building, playing video games, The Stanley parable, Alexander Hamilton. history. strolling past dawn. (⁠｡⁠•̀⁠ᴗ⁠-⁠)⁠✧
+✦ ┇likes:  Drawing, character building, playing video games, strolling around, mushroom hunting, history⁠✧
 
-✦ ┇birthday: January 13th.
+✦ ┇birthday: January the 13th.
 
-┇timezone: shift between UTC+2 and UTC+3
+┇timezone: UTC+3
 
-✦ ┇dm status: Open on Discord ^^
+✦ ┇dm status: Open on Discord
 (LonerDrunk.)
 
-✦ ▸▸ (C+H) always , i hate seeing my hans alone.〢:  ︶︶
+✦ ▸▸ (C+H) always , i hate seeing my skins alone.〢:  ︶︶
 
 ..... ... ...
 
@@ -62,7 +62,7 @@ My kin!
     <th>he's me</th>
   </tr>
   <tr>
-    <td><img src="https://i.postimg.cc/RFvyb3SC/683924192da85d6f614be24e4a7d6845.jpg" width="1000" alt="Login Screen"></td>
+    <td><img src= "https://i.postimg.cc/D09zqTtC/28cc60367ab0fd77e54dba499596dd64.jpg" width="1500" alt="Login"></td>
     <td><img src="https://i.postimg.cc/4NT5sCk3/6686f997b0b3dfbd35b178062119f80f.jpg" width="1000" alt="Dashboard"></td>
   </tr>
 </table>
