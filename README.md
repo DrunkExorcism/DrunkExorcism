@@ -57,14 +57,33 @@ my little chomp chomps!!
 |-----|----|-----|
 
 ```diff
-- Before you interact
+- Before you interact:
+ I`m a very egostical person, yes i`m aware and yes i`m trying to improve myself
+ I suffer from OCD and mythomania 
+ Don`t vent to me unless u ask first, i`m not mean. there`s just a time for everything and anything 
+ DO NOT try to copy my skins, my github, my accounts (straw, ata, ETC) and yes you can take inspo BUT ask first
+ i`m not well into the PT community so if you see me with anyone problematic WARN ME INSTEAD OF MAKING - FUCKING ASSUMPTIONS 
+ Don`t try to force me into anything, and dont cling to me. i will avoid you and block you.
 ```
- <p align="center"> I`m a very egostical person, yes i`m aware and yes i`m trying to improve myself </p>
- <p align="center"> I suffer from OCD and mythomania </p>
- <p align="center"> Don`t vent to me unless u ask first, i`m not mean. there`s just a time for everything and anything </p>
- <p align="center"> DO NOT try to copy my skins, my github, my accounts (straw, ata, ETC) and yes you can take inspo BUT ask first </p>
- <p align="center"> i`m not well into the PT community so if you see me with anyone problematic WARN ME INSTEAD OF MAKING - FUCKING ASSUMPTIONS </p> 
- <p align="center"> Don`t try to force me into anything, and dont cling to me. i will avoid you and block you.
+
+▶︎ •၊၊||၊|။||||| 0:10
+
+ALERT: beware. A GIF/PICS DUMP OF MY INTERESTS!!
+
+<img width="350" height="350" alt="just talk less you fucking moron" src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExem5yZTJqM2puYmluOGoyc3lrZmo2ZTNtbDhxdXAyZXA2am0wbDVvaCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/GlHwjtqwj6d4uI57Q3/giphy.gif" /> 
+
+<img width="350" height="350" alt="just talk less you fucking moron" src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExemJ3OGVuZ2lkY2IyNGlybWt6NXFzZm9sYnRrMTFyaWh6Y2F5YWdldSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/26n6A8aQaNuVYBmWA/giphy.gif" /> 
+
+<img width="350" height="350" alt="just talk less you fucking moron" src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExeW92ZnZ4bHRuY2V5MjlzcWhic2wwYTZmM3ZmeDFpcWt5bTlsbXJxeiZlcD12MV9naWZzX3NlYXJjaCZjdD1n/W4mwQT3wmoS41Cl65F/giphy.gif" />
+
+<img width="350" height="350" alt="just talk less you fucking moron" src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExZmF6dnkwazdtOGUxdjYweWIzbnU3aDdzMnRxdGR4ZTV6dHdkZHBseiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/D0GYKaNtxZNeg/giphy.gif" />
+
+<img width="350" height="350" alt="just talk less you fucking moron" 
+src="https://i.pinimg.com/736x/aa/23/ce/aa23ce88040f710e5c90ea51a6db3da2.jpg" />
 
 
-<img width="1080" height="360" alt="a wing" src="https://i.postimg.cc/qMHbmh1q/4721c7b21306a8c5e892bab511b220a9.jpg" alt="4542263248622993113684" />
+🫧𓇼𓏲*ੈ✩‧₊˚🎐 FIN - it was nice meeting you
+
+
+<img alt="just talk less you fucking moron" 
+src="https://i.pinimg.com/736x/6f/99/83/6f9983500bcc6963b8968bf9b053d5d5.jpg" />
