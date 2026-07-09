@@ -1,9 +1,9 @@
-**Notice: this readme will be used for trivial, gaming purposes only**
+**<code style="color : #42998B">this github account will be used for entertainment purposes only</code>**
 
-<img width="1080" height="360" alt="596b2f17146169cdedb8a83237811ee9" src="https://github.com/user-attachments/assets/9d32885f-b608-40a2-b01f-a0de7c2b1b6c" />
+<img alt="596b2f17146169cdedb8a83237811ee9" src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExbGx0NzAzMTRlYTh6bzBrOXhqeWhwN2NjenN2ZzluczZkNXl2a2RzayZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/1cMSWoZlxhO8w/giphy.gif" />
 
 
-## …⁠ᘛ⁠⁐̤⁠ᕐ⁠ᐷ Welcome to My profile, hope you enjoy your stay here ▸▸
+Welcome to My profile, hope you enjoy your stay here ▸
 
 ------- "How are you feeling today?"
 
