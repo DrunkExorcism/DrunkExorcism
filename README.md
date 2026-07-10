@@ -1,4 +1,5 @@
 **<code style="color : #42998B">this github account will be used for entertainment purposes only</code>**
+**best viewed in a pc/kaptop screen**
 
 <img alt="596b2f17146169cdedb8a83237811ee9" src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExbGx0NzAzMTRlYTh6bzBrOXhqeWhwN2NjenN2ZzluczZkNXl2a2RzayZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/1cMSWoZlxhO8w/giphy.gif" />
 
@@ -85,5 +86,5 @@ src="https://i.pinimg.com/736x/aa/23/ce/aa23ce88040f710e5c90ea51a6db3da2.jpg" />
 🫧𓇼𓏲*ੈ✩‧₊˚🎐 FIN - it was nice meeting you
 
 
-<img alt="just talk less you fucking moron" 
-src="https://i.pinimg.com/736x/6f/99/83/6f9983500bcc6963b8968bf9b053d5d5.jpg" />
+<img alt="love me like a drug oh baby" 
+src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExNmR3eThiNm9tN2FxN20wMHdrYWc0NnNuMjVybXZudmRwZG1heWIxYyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/56NdCUuelRkHE5hb6J/giphy.gif" />
