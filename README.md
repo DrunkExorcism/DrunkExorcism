@@ -10,7 +10,7 @@
 
 
 <p align="center">
-  <a href="https://friendshipnuts.straw.page/"><img alt=buttonyayyyy src="https://cdn.discordapp.com/attachments/1535272883511758972/1535288367871426580/slazzer-preview-npioy.png?ex=6a773837&is=6a75e6b7&hm=97051052abb0822e1276be7822c21a5b53a3865de835430e162823ee7cd81aca&" height=20 </a> ✦
+  <a href="https://loveyourselfhoney.straw.page"><img alt=buttonyayyyy src="https://cdn.discordapp.com/attachments/1535272883511758972/1535288367871426580/slazzer-preview-npioy.png?ex=6a773837&is=6a75e6b7&hm=97051052abb0822e1276be7822c21a5b53a3865de835430e162823ee7cd81aca&" height=20 </a> ✦
   <a 
   <p align="center">
   <a href="https://pronouns.cc/@Lonerdrunk."><img alt=iknowyouarelookinhhaha src="https://cdn.discordapp.com/attachments/1535272883511758972/1535288355217084546/slazzer-preview-r4tgr.png?ex=6a773834&is=6a75e6b4&hm=86ed88b8e14604f52ff7bf9eb26c2a7fbf8b1b7b2990384fd4252db51a69b828&" height=20</a> ★
