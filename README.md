@@ -1,5 +1,5 @@
 
-<p align="center"> ${ \space \space \color{#b9ddcd} \space  \space  Meet \space \space \color{#96bcb5} \space me \space \space  next \space \space \space Sunday \color{#5b7c85} \space.    {}}$
+<p align="center"> ${ \space \space \color{#b9ddcd} I \space  \space  need \space \space \color{#96bcb5} \space sunshine \space \space  next \space \space \space Sunday \color{#5b7c85} \space.    {}}$
 
 <p align="center">
   <img Alt=imsocool src="https://cdn.discordapp.com/attachments/1535272883511758972/1535276544862331011/slazzer-preview-p5ddm.png?ex=6a772d34&is=6a75dbb4&hm=d67da6d3293e3aedf62dbcf5c3e430818b1e078e2483a638ab9cc0fea7383b23&"/>
