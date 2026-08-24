@@ -19,3 +19,5 @@
   <p align="center">
   <a href="https://arab.org/click-to-help/palestine/"><img alt=nanananana src="https://cdn.discordapp.com/attachments/1535272883511758972/1535288376276557825/slazzer-preview-0twvb.png?ex=6a7e7879&is=6a7d26f9&hm=29092cef4434ed80318af97a6b6f744d792d4c4c40ec1f2d4488f5ce205c7b41&" height=20</a>
   <a 
+
+  || if u wonder why the GitHub is ugly af it's BCS I'm redoing it || 
